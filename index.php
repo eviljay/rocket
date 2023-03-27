@@ -1,5 +1,5 @@
 <!DOCTYPE html>
-<xml xmlns="http://www.w3.org/1999/xhtml">
+
 <html>
 <head>
 <meta name="generator" content="HTML Tidy for HTML5 for Linux version 5.6.0" />
@@ -48,7 +48,7 @@
 <center>
 <h1>Rocket casino no deposit bonus - Rocket casino <br/>(Coupon: V1WxqYfr)</h1><br/>
 <p>Updated: February 6,2023</p><br/><br/>
-<a href="https://gaminghouse.info/gspin-en"><img src="https://blaow.pro/buttonImgs/default.png" height="300px"/></a><br/><br/>
+ <img src="https://blaow.pro/buttonImgs/default.png" height="300px"/><br/><br/>
 Casino Rocket.
 #ad New customers only. You are only allowed to participate if you are at least eighteen (18) years old or of legal age as determined by the laws of the country where You live (whichever is higher). T&amp;Cs apply. Play responsibly. BeGambleAware.
 No deposit bonuses.
