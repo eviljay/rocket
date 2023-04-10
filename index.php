@@ -2,8 +2,8 @@
 
 <html>
 <head>
-    <link rel="canonical" href="https://www.casinorocket.com/">
-    <link rel="alternate" hreflang="en-au" href="https://www.casinorocket.com/" />
+    <link rel="canonical" href="https://casinorocket.herokuapp.com">
+    <link rel="alternate" hreflang="en-au" href="https://www.casinorocket.com/en-au" />
 <meta name="generator" content="HTML Tidy for HTML5 for Linux version 5.6.0" />
     <meta name="google-site-verification" content="EUKFSkgS2vov_RESlCH7iNM82pq-4Mw530hhqIGK2CY" />
 <script type="application/ld+json">
@@ -51,7 +51,7 @@
 <center>
 <h1>Rocket casino no deposit bonus - Rocket casino <br/>(Coupon: V1WxqYfr)</h1><br/>
 <p>Updated: February 6,2023</p><br/><br/>
- <img src="https://blaow.pro/buttonImgs/default.png" height="300px"/><br/><br/>
+ <a href="https://www.casinorocket.com/"><img src="https://blaow.pro/buttonImgs/default.png" height="300px"/></a><br/><br/>
 Casino Rocket.
 #ad New customers only. You are only allowed to participate if you are at least eighteen (18) years old or of legal age as determined by the laws of the country where You live (whichever is higher). T&amp;Cs apply. Play responsibly. BeGambleAware.
 No deposit bonuses.
