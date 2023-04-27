@@ -51,7 +51,7 @@
 <center>
 <h1>Rocket casino no deposit bonus - Rocket casino <br/>(Coupon: V1WxqYfr)</h1><br/>
 <p>Updated: February 6,2023</p><br/><br/>
- <a href="https://www.casinorocket.com/"><img src="https://blaow.pro/buttonImgs/default.png" height="300px"/></a><br/><br/>
+ <a href="https://newgenaffmedia.com/a64c1a5d0"><img src="https://blaow.pro/buttonImgs/default.png" height="300px"/></a><br/><br/>
 Casino Rocket.
 #ad New customers only. You are only allowed to participate if you are at least eighteen (18) years old or of legal age as determined by the laws of the country where You live (whichever is higher). T&amp;Cs apply. Play responsibly. BeGambleAware.
 No deposit bonuses.
